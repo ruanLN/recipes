@@ -10,8 +10,8 @@
 * 1 teaspoon baking soda
 * 2 large eggs
 * 3 tablespoons smooth appricot jam
-* 2 tablespoons meted butter
-* 3/4 cups milt
+* 2 tablespoons melted butter
+* 3/4 cups milk
 
 ### Sauce:
 * 2 cups boiling water
